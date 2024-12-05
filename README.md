@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @hassan2028191
 - 👀 I’m interested in Coding and programming software
 - 🌱 I’m currently learning N/A
-- 💞️ I’m looking to collaborate on
+- 💞️ I’m looking to collaborate on https://stackoverflow.com/
 - 📫 How to reach me . Hassantariq20077@gmail.com
 - 😄 Pronouns:He/Him 
 - ⚡ Fun fact: I love to code
