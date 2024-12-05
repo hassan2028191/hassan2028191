@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding and programming software
 - 🌱 I’m currently learning N/A
 - 💞️ I’m looking to collaborate on
-- 📫 How to reach me . Hassan20077@gmail.com
+- 📫 How to reach me . Hassantariq20077@gmail.com
 - 😄 Pronouns:He/Him 
 - ⚡ Fun fact: I love to code
 
